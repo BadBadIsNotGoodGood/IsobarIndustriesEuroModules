@@ -24,7 +24,7 @@ You can find my store [here]([url](https://isobarindustries.etsy.com)).
 
 If you need additional support or have questions about our modules:
 
-- Visit my website:
+- Visit my website: [Website](https://isobar.studio/)
 - Visit my [Etsy Store](https://isobarindustries.etsy.com)
 - Email me: isobarindustries@gmail.com
 
